@@ -1,5 +1,6 @@
 # say-hello-to-the-moon
 an introduction ! i guess? 
+ATABOOK: https://littlebit0408.atabook.org/ PLS SIGN <3
 
 hi! i am Littlebit/Moon/whatever cosplay i am currently wearing. ENFJ .. + aries sun, moon gemini, ascendant leo, if i knew typology id put it here
 I enjoy writing and drawing and that is what I am usually on ponytown for, waiting for rps or waiting to socialize with people. 
