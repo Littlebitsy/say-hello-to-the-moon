@@ -10,4 +10,6 @@ I am very friendly, so please interact with me! I really enjoy having conversati
 
 i have multiple fandoms I am into, but the ones i particularly enjoy as of current are DogOnline, Any Daniel Mullins Game (The Hex, Inscryption, Pony Island) all Yugo Limbo games and Books (Smile For Me, Great God Grove), and a basket of other games (TBOI, MEWGENICS, Buddy Simulator, yada yada..) showwise? uhm. im sort of under a rock, apologies ...
 
+please dont interact: proshippers/darkshippers/people romanticize rape incest abuse yada yada, bigots, people who harass people with touch/kiss/cuddle triggers/discomforts. "mean humor" to people you dont know.
+
 # I HAD a stamp collectionn. but. it broke....... cool........ please whisper me how to make gifs work.
